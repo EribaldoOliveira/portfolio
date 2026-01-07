@@ -108,7 +108,8 @@ I am seeking opportunities as a **Front-End Developer** or **Web Developer**, wh
 
 ## 📬 Contact
 
-- 💼 LinkedIn: https://www.linkedin.com/in/seuusuario  
+
+- 💼 LinkedIn: [Eribaldo Oliveira](https://www.linkedin.com/in/eribaldo-oliveira/)
 - 📱 WhatsApp: https://wa.me/5579988035219  
 
 ---
