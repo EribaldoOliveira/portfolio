@@ -108,7 +108,7 @@ Busco oportunidades como **Desenvolvedor Front-end** ou **Desenvolvedor Web**, a
 
 ## 📬 Contato
 
-- 💼 LinkedIn: https://www.linkedin.com/in/[seuusuario](https://www.linkedin.com/in/eribaldo-oliveira/)  
+- 💼 LinkedIn: [Eribaldo Oliveira](https://www.linkedin.com/in/eribaldo-oliveira/)  
 - 📱 WhatsApp: https://wa.me/5579988035219  
 
 ---
